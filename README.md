@@ -2,7 +2,7 @@
 
 Lapacho y Algarrobo
 Solito en el monte
-Donde el día esconde
+Donde el día esconde la luna
 Lumbre de la tierra
 Ceniza de sol.
 
