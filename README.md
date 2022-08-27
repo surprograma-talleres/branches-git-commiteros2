@@ -6,7 +6,7 @@ Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
-Lapacho y Fresno ( :) )
+Lapacho y Fresno
 También en mi alma
 La vida
 Sembró su color.
