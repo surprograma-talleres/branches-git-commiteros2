@@ -2,7 +2,7 @@
 
 Lapacho
 Solito en el monte
-Donde el día esconde
+Donde el día esconde y la noche no
 Lumbre de la tierra
 Ceniza de sol.
 
