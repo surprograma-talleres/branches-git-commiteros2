@@ -1,12 +1,12 @@
 ### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-Lapacho
+Lapacho y Algarrobo
 Solito en el monte
-Donde el día esconde y la noche no
+Donde el día esconde la luna y la noche no
 Lumbre de la tierra
 Ceniza de sol.
 
-Lapacho
+Lapacho y Fresno
 También en mi alma
 La vida
 Sembró su color.
@@ -32,4 +32,4 @@ Lumbre de la tierra
 Ceniza de sol.
 Lapacho
 
-Lapacho...
+Lapacho... Algarrobo.. siempre!
